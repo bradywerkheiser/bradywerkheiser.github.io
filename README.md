@@ -4,4 +4,4 @@ I will be using this site to post about projects I'm working on and general musi
 
 My professional interests include cryptocurrency, blockchain technology, and marketing.
 
-Outside of work my I practice Bhakti Yoga, read, edit Wikipedia, and spend time with friends.
+Outside of work I practice Bhakti Yoga, read, edit Wikipedia, and spend time with friends.
